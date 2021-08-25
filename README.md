@@ -25,7 +25,7 @@
 # Louças
 | Nome | Valor | Valor de Novo | Desccrição | Fotos | Referência | Disponibilidade |
 | ------ | ------ | ------ | ------ | ------ | ------ | ------ |
-| Prato de Folha (Molheiro) - L11.5×C7.4×H3.5cm | R$54   | $1 | Conjunto de 4. Produto comprado no Japão (Nitori) em perfeito estado | [Clique aqui](https://photos.app.goo.gl/kEuzz2BmU6jgtFy96) | [link](https://www.nitori-net.jp/ec/product/8969467s/) | Imediata |
+| Prato de Folha (Molheiro) - L11.5×C7.4×H3.5cm | R$54   | $4 | Conjunto de 4. Produto comprado no Japão (Nitori) em perfeito estado | [Clique aqui](https://photos.app.goo.gl/kEuzz2BmU6jgtFy96) | [link](https://www.nitori-net.jp/ec/product/8969467s/) | Imediata |
 | Refratário Hermético De Vidro Wmf 28x20 | R$80 | R$199 | Usado, porém bem conservado | [Clique aqui](https://photos.app.goo.gl/pVc9o33VhQYY9Gnp7) | [link](https://produto.mercadolivre.com.br/MLB-1941552799-refratario-hermetico-de-vidro-wmf-24x29-_JM?searchVariation=90350134535#searchVariation=90350134535&position=16&search_layout=grid&type=item&tracking_id=4dfbab51-58ce-4970-a76c-8da713916d48) | Imediata |
 
 # Action Figures/Pelúcia
