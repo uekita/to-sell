@@ -4,7 +4,7 @@
 
 | Nome | Valor | Valor de Novo | Desccrição | Fotos | Referência | Disponibilidade |
 | ------ | ------ | ------ | ------ | ------ | ------ | ------ |
-| Cadeira Frame tok&stok Grafite/Preto | R$180 | R$499 | 4 unidades em bom estado, faço todas por R$650 | [Clique aqui](https://photos.app.goo.gl/soqMYWyFrBpPxHFF9) | [link](https://www.tokstok.com.br/cadeira-preto-grafite-frame/p) | Imediata
+| Cadeira Frame tok&stok Grafite/Preto | R$180 | R$499 | 4 unidades em bom estado, faço todas por R$650 | [Clique aqui](https://photos.app.goo.gl/soqMYWyFrBpPxHFF9) | [link](https://www.tokstok.com.br/cadeira-preto-grafite-frame/p) (RESERVADO)| Imediata
 | Mesa Metric tok&stok 160X75 Madeira Preta | R$800 | R$1499 | Pequenas marcas de uso, não está tão firme como uma nova | [Clique aqui](https://photos.app.goo.gl/ua1CMbFtHveyXXA89) | [link](https://www.tokstok.com.br/mesa-160x75-madeira-preto-metric/p?idsku=957010154&gclid=Cj0KCQjwsZKJBhC0ARIsAJ96n3VFqGw2UicSDrVO03-daJNZZ6iumlfWqLhcTHMzSK_T6p0ZCx9HlR8aAqYdEALw_wcB) | Imediata
 | Sofá Muy 3 Lugares tok&stok Cinza | R$300 | R$1799 | Possui diversas avarias. | [Clique aqui](https://photos.app.goo.gl/GTiLGd2AtkPghh9TA) | [link](https://www.tokstok.com.br/sofa-3-lugares-cinza-claro-mescla-muy/p?idsku=404889&gclid=Cj0KCQjwsZKJBhC0ARIsAJ96n3W-a7CxCiPRDfJpDOAl5f8wjugul_hpyfJgPx2gGZMRQqmQj409Zm4aAtI4EALw_wcB) | Imediata |
 
