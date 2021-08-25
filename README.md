@@ -1,5 +1,7 @@
 # Produtos para vender
 
+`Para produto de valores mais altos, posso fazer mercado livre para pagar com cartão, parcelamento, etc`
+
 ## Móveis
 
 | Nome | Valor | Valor de Novo | Desccrição | Fotos | Referência | Disponibilidade |
