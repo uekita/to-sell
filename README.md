@@ -78,5 +78,5 @@
 #### Yuyu Hakusho Vol.1 R$50
 #### Yuyu Hakusho Vol.1 LACRADO R$65
 
-[Fotos](https://photos.app.goo.gl/Yorf4hhVgGvk1NNt7)
+[Fotos](https://photos.app.goo.gl/SWiswi8tBFjyYD5VA)
 
