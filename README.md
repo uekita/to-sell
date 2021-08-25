@@ -53,7 +53,7 @@
 #### Black Clover Vol. 1(lacrado) R$60, Vol 2(lacrado) R$45 e vol. 17 R$30
 #### Boku no Hero Academia Ed. Japonesa Vol. 16 e 17 R$40 cada
 #### Cavaleiros do Zodíaco Ep. G Vol. 1 ao 5 R$80
-#### Cavaleiros do Zodíaco Edição Conrad Completo R$600
+#### Cavaleiros do Zodíaco Edição Conrad Completo 1 ao 48 (raro) R$600
 #### Card Captor Sakura Ed. Especial Vol.1,2 R$35 cada
 #### Gate 7 Vol. 1 lacrado R$20
 #### Jujutsu Kaisen Vol. 0 a 5 R$180 (Todos lacrados menos o 0)
@@ -61,15 +61,15 @@
 #### Kekkaishi Vol. 1 ao 19 R$200
 #### Kimi ni todoke Vol. 1,2,4,6,9,10,18 e Vol 3,5,7,8 (Lacrados) R$25(Lacrado) e R$20 aberto
 #### Naruto Pocket Vol. 1 ao 4 R$150
-#### Neon Genesis Evangelion ed. especial 1 R$
+#### Neon Genesis Evangelion ed. especial 1 R$35
 #### One Pìece Ed. Japonesa Vol. 79 e 81 R$40 cada
 #### One Piece Vol. 1 Lacrado R$200, aberto R$30
 #### Princess Ai Vol.1 R$10
 #### RG Veda Vol. 1 R$20
-#### Samurai X completo (JBC) R$200
+#### Samurai X completo 1 ao 56 + ed especial (JBC) R$250
 #### Sakura Hime Kaden (The Legend of Princess Sakura) Vol. 6 Ed. Japonesa R$30
 #### Sanctuary Vol. 2 R$10
-#### Shaman King Completo Vol 1 ao 64 R$240
+#### Shaman King Completo Vol 1 ao 64 R$250
 #### Slam Dunk Vol. 1,2,3,4,5,6,7,8,10,12,14,15,16,17,18,19,20 R$100
 #### Suki tte Iwaseru Houhou (make you say, "I love you!") Vol. 1 e 2 Ed. Japonesa R$25 cada
 #### Suki-tte ii Na Yo (Say I love You) Ed. Japonesa Vol. 1,12,13,15,18 R$30,00 cada
